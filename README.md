@@ -1,1 +1,1 @@
-# Parana
+# Paraná
